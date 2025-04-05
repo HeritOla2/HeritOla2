@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Heritage
 - 👀 I’m interested in designing digital products, carrying out user surveys and doing UX writings.
-- 🌱 I’m currently learning Product Design
+- 🌱 I’m currently looking for Product Design gigs to work on.
 - 💞️ I’m looking to collaborate on builiding globally appealing and user-centric digital products
 - 📫 How to reach me call/whatsapp: +(234) 7044305773 email: oabimbola98@gmail.com
 - 😄 Pronouns: She/Her/Billions😜
